@@ -12,4 +12,4 @@ To Know more about NexFolio click below
 https://user-images.githubusercontent.com/113233023/189522687-a6d5862a-9204-4545-971d-9634689f1d67.mp4
 
 # Download
-https://gofile.io/d/nrSlCD
+https://gofile.io/d/0KIwB6
